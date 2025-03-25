@@ -2,7 +2,7 @@ Certainly! Here's an extended version of your ad that includes the installation 
 
 ---
 
-# BLOCKGUARD IP SHIELD
+# BLOCKCHAIN ENABLED INTELLECTUAL PROPERTY PROTECTION
 
 Explore the future of decentralized technology with BLOCKGUARD, your gateway to Web 3.0. Experience a seamless and secure blockchain application that empowers you to take control of your digital assets.
 
