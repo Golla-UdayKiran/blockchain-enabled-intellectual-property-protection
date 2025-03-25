@@ -2,9 +2,9 @@ Certainly! Here's an extended version of your ad that includes the installation 
 
 ---
 
-# BLOCKCHAIN ENABLED INTELLECTUAL PROPERTY PROTECTION
+# Blockchain Enabled Intellectual Property Protection
 
-Explore the future of decentralized technology with BLOCKGUARD, your gateway to Web 3.0. Experience a seamless and secure blockchain application that empowers you to take control of your digital assets.
+Explore the future of decentralized technology with Blockchain, your gateway to Web 3.0. Experience a seamless and secure blockchain application that empowers you to take control of your digital assets.
 
 **Installation Steps:**
 
